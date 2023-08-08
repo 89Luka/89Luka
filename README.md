@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @89Luka
+- 👀 I’m interested in coding :)
+- 🌱 I’m currently learning nothing.
+- 💞️ I’m looking to collaborate on nothing.
+- 📫 Contact me on Twitter / X.
